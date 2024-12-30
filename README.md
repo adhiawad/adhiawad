@@ -5,7 +5,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/adhiawad](https://github.com/adhiawad)
 
-- 📫 How to reach me **adhiawad24831@gmial.com**
+- 📫 How to reach me **adhiawad24831@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
